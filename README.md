@@ -2,7 +2,7 @@
 - 👀 I’m interested in developing myself
 - 🌱 I’m currently learning in java and python
 - 💞️ I’m looking to collaborate with partner 
-- 📫 How to reach me "thirumurugan29822982@gmail.com"
+- 📫 How to reach me "gthirumurugan01@gmail.com"
 - 😄 Pronouns:he 
 - ⚡ Fun fact: Did you know that the shortest war in history was between Britain and Zanzibar on August 27, 1896? The war lasted only 38 minutes before Zanzibar surrendered.
 
